@@ -1,2 +1,2 @@
 Fortnite Offsets:
-https://pastebin.com/raw/Lx1XhDj8
+https://pastebin.com/raw/dbGy9L8a
